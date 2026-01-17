@@ -54,6 +54,8 @@ but suggestions and improvements are always welcome! 😊
 If you like my work:
 - Give a ⭐ to the repo
 - Follow me on GitHub
+- follow me on linkedin
+- follow me on instagram
 - Stay connected for more projects
 
 ---
